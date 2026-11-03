@@ -10,6 +10,9 @@
 </p>
 
 <p align="center">
+  wow 4 folls ty
+</p>
+<p align="center">
 ʚ ‎ ‎ ‎ ‎ ‎ <a href="https://7he4dsh0t.straw.page/">st𝓻aw𝓹age</a> ✦ <a href="https://headshoot.atabook.org/">a𝓽aboo𝓴</a> ✦ <a href="https://guns.lol/7he4dsh0t">gu𝓷s</a> ✦ <a href="https://pronouns.cc/@7he4dsh0t">𝓹rono𝓾n𝓼</a> ‎ ‎ ‎ ‎ ‎ ɞ
 </p>
 <p align="center">
