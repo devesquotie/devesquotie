@@ -1,5 +1,5 @@
 <p align="center">
-<a href="https://hits.sh/github.com/devxquot/hits/"><img alt="Hits" src="https://hits.sh/github.com/devxquot/hits.svg?label=lost%20connection&color=486073&labelColor=4c4358"/></a>
+<a href="https://hits.sh/github.com/devesquotie/hits/"><img alt="Hits" src="https://hits.sh/github.com/devesquotie/hits.svg?label=lost%20connection&extraCount=3870&color=5a7279&labelColor=4d415e"/></a>
 
 <p align="center">
 </p>
