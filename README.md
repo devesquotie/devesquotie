@@ -5,7 +5,7 @@
 </p>
 
 <p align="center">
-<img width="100" height="100" alt="wifies-parrotx2" src="https://github.com/user-attachments/assets/74710edd-17c4-4d76-a35f-d5ef155cf829" />
+<img width="374" height="170" alt="wifies-parrotx2" src="https://github.com/user-attachments/assets/5439b478-985d-4cac-be4f-fbc7d08ec908" />
 </p>
 
 <p align="center">
